@@ -3,12 +3,16 @@
 💙💋🐚🍧🥂
 
 -amo séries e filmes 
+
 -gosto de mecher no celular📱
+
 -amo ir à igreja 🛐
+
 -amo músicas 🎵
+
 -gosto muito de comer 🍕
 
-##entre em contato 📫
+## entre em contato 📫
 -calixto.milena@escola.pr.gov.br
 -estudando no(alura)[https://cursos.alura.com.br/dashboard]
 
