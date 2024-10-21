@@ -18,6 +18,4 @@
 
 -estudando no(alura)[https://cursos.alura.com.br/dashboard]
 
-
-!{](![image](https://github.com/user-attachments/assets/5c4f8918-36c9-4d2d-87ea-6e569cdba810)
-)
+![](https://media1.tenor.com/m/CzaHhPyIR8gAAAAC/rosy00.gif)
